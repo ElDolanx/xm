@@ -21,4 +21,4 @@ Skills: I can definitely open a word document not gonna lie
 ### About me:
 
 ####Hi, im El, currently a student in the country i grew up in, UK, studying business and web development.
-####i'm always looking for new people to chat with so send me a message over on (https://www.instagram.com/Eldolanx/)
+####i'm always looking for new people to chat with so send me a message over on [Instagram](https://www.instagram.com/Eldolanx/)
